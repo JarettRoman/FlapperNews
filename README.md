@@ -1,0 +1,1 @@
+Blatant ripoff of reddit and hacker news so please don't sue me bc i'm poor
